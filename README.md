@@ -210,8 +210,8 @@ dgtfhjm,
 seghjkl,.-
 fgh
 jiuytfdcgbvnmjklçoiuygfvhjbklçº
-
-
-
+oihujbnmlkjm
+ugyhbjnkmloihujbnm,lkoijhunm
+ghjkl
 
 
