@@ -214,4 +214,8 @@ oihujbnmlkjm
 ugyhbjnkmloihujbnm,lkoijhunm
 ghjkl
 erdtyuçl
+dfghjkl.,-mnbvcfghjmn
+
+
+
 
